@@ -9,16 +9,16 @@ April 2021 to Oct 2021
 <h2>What does the new org chart look like?</h2>
 MITPU will have 4 big teams (pillars): Events, Contents, Finance and Career Development.
 
-<h2>Who’s gonna lead </h2>
+<h2>Who’s going to lead </h2>
 A chairperson will be selected via the open, nomination based election after the merger.
 Boards members from both organizations will be eligible to hold positions in the newly merged organization.
 
 <h1>Oluulaa specific</h1>
 
-<h2>What happens to MPS?</h2>
+<h2>What happens to Oluulaa Mentorship Program (OMP)?</h2>
 Mentorship project will be continued under the team Career Development.
 
-<h2>What happens to the Event Series?</h2>
+<h2>What happens to the Oluulaa Event Series?</h2>
 This team is focused on organizing virtual and in-person public events. The audience of some of the events will be exclusive members only and some will be open to the public. 
 
 <h2>What happens to the Car Set Project?</h2>
@@ -37,8 +37,8 @@ The project Referral will be continued under the team Career Development.
 <h2>MITPU seems like an exclusive group to its members only. Are we limiting Oluulaa’s projects to MITPU members only?</h2>
 By merging with Oluulaa, we are trying to break the notion that MITPU is an exclusive members-focused organization. We are still going to be focused on our members and their experience while doing external-focused programs and events. 
 
-<h2>Is Oluulaa gonna lose its identity/branding?</h2>
+<h2>Is Oluulaa going to lose its identity and brand?</h2>
 Oluulaa’s programs like Event Series and mentorship program will keep the “oluulaa” brand name. MITPU will maintain and own the brand identity and keep growing the “Oluulaa” brand.
 
-<h2>Due to the merger, Does the mission statement need to be changed/revised?</h2>
+<h2>Due to the merger, does the mission statement need to be changed/revised?</h2>
 There is a unified mission statement that ties together the focuses of both organizations. 
