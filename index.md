@@ -9,6 +9,9 @@ April 2021 to Oct 2021
 <h2>What does the new org chart look like?</h2>
 MITPU will have 4 big teams (pillars): Events, Contents, Finance and Career Development.
 
+<h2>What will be the new name of the organization?</h2>
+The name of the organization will remain as MITPU.
+
 <h2>Who’s going to lead </h2>
 A chairperson will be selected via the open, nomination based election after the merger.
 Boards members from both organizations will be eligible to hold positions in the newly merged organization.
